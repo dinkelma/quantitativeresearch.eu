@@ -1,3 +1,0 @@
-# quantitativeresearch.eu
-
-#Hi
